@@ -1,0 +1,1 @@
+# Soluci-n-de-BI-y-Big-Data-para-la-Eficiencia-Operativa-y-Financiera-en-Cl-nicas-Privadas
